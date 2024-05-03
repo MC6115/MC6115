@@ -2,7 +2,7 @@
 - 👀 I’m interested in Taekwondo
 - 🌱 I’m currently learning how to code and are very excited for it
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me matiascarrollo115@gmail.com
+- 📫 How to reach me matiascarrillo115@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Just learning something to have fun
 
